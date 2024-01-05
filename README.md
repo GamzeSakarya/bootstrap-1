@@ -1,0 +1,5 @@
+![Ekran Görüntüsü (74)](https://github.com/GamzeSakarya/bootstrap-1/assets/126356427/f9da9ba3-eeb7-4f40-b1fa-acd59e46c084)
+![Ekran Görüntüsü (75)](https://github.com/GamzeSakarya/bootstrap-1/assets/126356427/6bc54ebe-1377-4ff0-8ead-5f4cc52876fc)
+![Ekran Görüntüsü (76)](https://github.com/GamzeSakarya/bootstrap-1/assets/126356427/5fa3aa3b-40f0-4153-b530-95e9d2d43c1f)
+![Ekran Görüntüsü (77)](https://github.com/GamzeSakarya/bootstrap-1/assets/126356427/a9fa057a-6720-4bd4-ab17-0685025c0f23)
+![Ekran Görüntüsü (78)](https://github.com/GamzeSakarya/bootstrap-1/assets/126356427/f25e1802-266e-4c0b-a58e-f6b73fe890c1)
